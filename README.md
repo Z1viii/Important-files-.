@@ -1,5 +1,5 @@
-# Important-files-.
-Uhm, sort of trigger warnings yea, but not really..?
+# Please read !!
+Idk what else to say for this .. just read idrk..
 
 # I sort of don't know how to explain this in a good order.. Yet I guess I'll start with some social problems I have.
 
